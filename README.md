@@ -38,4 +38,5 @@ Nimes Combo 100 mg, **non-steroidal anti-inflamatuar (NSAID) ilaçlar arasında 
 ❌ **Böbrek ve karaciğer yetmezliği olanlar için önerilmez**.  
 
 Combo 100 mg, **hızlı ve etkili bir ağrı kesici çözüm sunarken, doktor önerisiyle kullanılmalıdır**. Güncel kullanıcı yorumları ve fiyat bilgisi için **eczaneleri ve güvenilir online platformları inceleyebilirsiniz**.
-<a href="https://www.combo100mg.net/" target="_blank">Combo 100 mg hakkında daha fazla bilgi</a>
+
+Daha fazla bilgi için: [Combo 100 mg Resmi Web Sitesi](https://www.combo100mg.net/)
